@@ -7,4 +7,4 @@
 - 💬 Ask me about Vajrayana practice.
 - 📫 How to reach me: `zuck@facebook.com`
 - 😄 Pronouns: 我/我
-- ⚡ Fun fact: You are ruled by a cabal of billionaire pedophiles.
+- ⚡ Fun fact: Italians make the ideal lover.
