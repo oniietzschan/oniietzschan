@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with finding some sailors.
 - 💬 Ask me about Vajrayana practice.
 - 📫 How to reach me: `zuck@facebook.com`
-- 😄 Pronouns: 我/我
+- 😄 Pronouns: 我/々
 - ⚡ Fun fact: Italians make the ideal lover.
